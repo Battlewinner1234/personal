@@ -1,6 +1,6 @@
 ## About Me
 
-I am a student at HPISD
+I am a high-school student
 
 ## Research Interests
 
